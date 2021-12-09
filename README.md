@@ -430,5 +430,5 @@
 
 近期行业波动大，希望大家都能工作顺利，身心健康最重要。
 
-<img src="https://s4.ax1x.com/2021/12/08/oR9Zl9.png" width=80% />
+<img src="https://s2.loli.net/2021/12/08/5IqDu8XkvjT2lSL.png" width=80% />
 
